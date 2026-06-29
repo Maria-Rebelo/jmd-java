@@ -7,5 +7,6 @@
 5. Força Ralph
 6. Ocean's 8
 7. Barbie
+8. Shazam
 
 **gostos não se discutem**
