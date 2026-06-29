@@ -6,6 +6,6 @@
 4. Coco
 5. Força Ralph
 6. Ocean's 8
-7. Jumanji
+7. Barbie
 
 **gostos não se discutem**
